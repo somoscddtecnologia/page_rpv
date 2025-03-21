@@ -9,6 +9,6 @@
 
 5 - Júlio
 
-6 - Eduarda
-
+6 - Eduarda / André / Brayan / Erick Torres
+ 
 7 - Victor H

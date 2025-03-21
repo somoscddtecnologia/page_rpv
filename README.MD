@@ -11,4 +11,4 @@
 
 6 - Eduarda / André / Brayan / Erick Torres
  
-7 - Victor H
+7 - Victor H / Daniel Martins / Pedro Henrique Furtado

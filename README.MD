@@ -7,7 +7,7 @@
 
 4 - Ítalo
 
-5 - Júlio
+5 - Júlio / Talita / Larissa Da Glória
 
 6 - Eduarda / André / Brayan / Erick Torres
  

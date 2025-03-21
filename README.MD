@@ -1,9 +1,9 @@
 # Equipes
 1 - Heitor
 
-2 - Gelson
+2 - Gelson / Higor / Lucas Alves
 
-3 - Larissa
+3 - Larissa / Hugo / Karine
 
 4 - Ítalo / Roberta / Matheus
 
